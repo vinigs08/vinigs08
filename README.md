@@ -1,5 +1,5 @@
 Java programmer ☕<br>
-Kanye West fan 💽<br>
+Kanye West's son 💽<br>
 Estudante Federal 👩🏻‍💻<br>
 
 
