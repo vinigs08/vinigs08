@@ -1,6 +1,6 @@
 Java programmer ☕<br>
 Kanye West fan 💽<br>
-Estudante Federal<br>
+Estudante Federal 👩🏻‍💻<br>
 
 
 
