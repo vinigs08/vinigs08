@@ -1,4 +1,9 @@
-### Programo em java por diversão 💽
+### Java programmer ☕
+Kanye West fan 💽
+Estudante Federal
+
+
+
 
 <!--
 **vinigs08/vinigs08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
